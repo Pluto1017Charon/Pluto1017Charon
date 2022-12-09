@@ -1,1 +1,1 @@
-- 👋 Hi, welcome to the universe of Pluto and Charon, hope you are loved by someone deeply.
+- 👋 Hi, welcome to the universe of pluto and charon, hope you are deeply loved by someone.
